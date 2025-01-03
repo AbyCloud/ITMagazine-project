@@ -1,1 +1,0 @@
-# ITMagazine-project
